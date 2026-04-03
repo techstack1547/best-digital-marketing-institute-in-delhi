@@ -7,7 +7,7 @@ Today, businesses are rapidly shifting online, and the demand for skilled profes
  Which is the best digital marketing institute in Delhi that actually provides practical skills and career support?
 
 To understand how structured learning works in this field, you can explore this program.
-https://www.techstack.in/digital-marke
+https://www.techstack.in/digital-marketing/
 
 
 
